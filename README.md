@@ -13,3 +13,6 @@ Contato:
 
 E-Mail: aryadsonsilva09@gmail.com
 LinkedIn: www.linkedin.com/in/aryadson
+Instagram: https://www.instagram.com/arya.dson09?stkn=MW1wbmhidjRjNm1uYQ==
+Threads: https://www.threads.com/@arya.dson09
+x(twitter): https://x.com/aryadsonsilva09
